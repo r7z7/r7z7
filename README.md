@@ -1,3 +1,7 @@
 ### Hi there 👋
 
-Hello,i'm sng7,nice to meet you.
+Hello,i'm r7z7,nice to meet you.
+
+> I'm a developer,
+> 
+> oh...fuck
